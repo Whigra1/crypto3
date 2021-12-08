@@ -16,3 +16,5 @@ and lose the
 
 дальше гугол раскрыл дело 
 ![image](https://user-images.githubusercontent.com/43039301/145281169-b7d1c04b-c73d-4c59-876d-28c8084e8f9e.png)
+![image](https://user-images.githubusercontent.com/43039301/145281296-b90b2c28-b563-4bbd-8965-d1b9c739fa18.png)
+
